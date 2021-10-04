@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+i like travelling 
+i like photography
+i want to be happy always
